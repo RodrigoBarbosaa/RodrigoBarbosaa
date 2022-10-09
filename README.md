@@ -1,4 +1,4 @@
-### Hi there 👋, i'm Rodrigo Barbosa
+### Hi there 👋, i'm Rodrigo 
 
 <div>
   <br>
